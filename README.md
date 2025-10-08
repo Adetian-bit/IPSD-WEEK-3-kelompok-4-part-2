@@ -1,4 +1,4 @@
-# IPSD-WEEK-3-kelompok-4-part-2
+# IPSD-WEEK-3-kelompok-6-part-2
 #### ***KELOMPOK 6 :***
 
 
